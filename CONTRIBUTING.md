@@ -1,6 +1,8 @@
-# Contributing to VS Code
+jerardo afuiniva cervantes fix control and put them on there place phone control correct and let me have my own  money for the restock and forward it thy o my getaway as for me in jerardo  its here not over there in real life establishes real control how come jj now  come here at the same place im now you are the my friend at work right away  report to me in person  in the interview of the company verification process of my resume to be contributing my account details as following qith out phone number. 
+to VS Code
 
 Welcome, and thank you for your interest in contributing to VS Code!
+
 
 There are several ways in which you can contribute, beyond writing code. The goal of this document is to provide a high-level overview of how you can get involved.
 
